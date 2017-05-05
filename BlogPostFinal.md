@@ -1,0 +1,21 @@
+# Egyptian Student Protest sends important message to Today’s Millennials
+
+# # Response to Wednesday’s Issue (Page 3): The School Strike Absurd Claims Other Schools Come Out.
+
+# # # Jasmine Johnson
+# # # # Today’s Date: March 6, 2017
+# # # # # Issue Date: Wednesday, February 28,2017
+
+
+
+[Strike in Egypt](StrikeInEgypt.jpg)
+
+It is often a commonly agreed upon notion that drama equates to attention which usually results in the awareness of a certain issue or situation. In this 1906 Issue of the Egyptian Gazette a mass of Egyptian Law Students form a Strike. The strike was in efforts to gain the freedom of being able to retake a class, if failed at the expense of passing and focusing on a course of higher standards and more rigor. The list of grievances brought to government officials by these law students are certainly quite comical especially if placed into a hypothetical perspective of today’s law students in the United States fighting for similar matters. Surely, in general it would be a great privilege to be able to retake Microeconomics for instance, if failed at the expense of Business Calculus and arguable more difficult prerequisite course for the college of business. However, the more important realization to get from this interesting story is the backing that the Egyptian law students received from their fellow peers in other graduate programs. Students of Medical School programs and Polytechnic programs also joined the fight for student rights, for the efforts although originally established for the betterment of law student opportunities were easily transferable to the situations of the Graduate Student population as a whole.
+
+
+Often times, people draw the overlapping circle of the issues faced by minorities, in the United States, especially the challenges faced by Muslim and African American, or women  groups in the United States today. Just as the Graduate students faced the similar grievance of forced to meet unrealistic expectations with minimal lead way, these minority groups all in some way are marginalized in society, whether it is through the education system, workplace or public. Thus, as the students came together on such a pressing issue despite their different career paths and goals why then is it so difficult for minority groups to unite, to fight for their freedoms, rid their grievances and attain their rights. Certainly an underlying motivational reality of these Egyptian graduate school students may obtained and applied to current issues of the United States. I guess although day to day the world changes, for the most part in one way or another it really stays the same but changes forms during evolution.
+
+Work Cited:
+
+[Wednesday, February 28,2017](1906-02-72-3.jpg)
+[Strike in Egypt](http://i1.wp.com/www.dailynewsegypt.com/app/uploads/2013/12/resized_AAA_2973.jpg?resize=768%2C430)
